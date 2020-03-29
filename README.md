@@ -1,1 +1,1 @@
-# blog-medium
+# https://medium.com/@circleofsurvival
